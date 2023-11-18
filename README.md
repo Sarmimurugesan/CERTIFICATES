@@ -1,1 +1,1 @@
-# CERTIFICATES
+I am Sarmili, a Final year student in the stream of Computer Science of Engineering in KPR Institute of Engineering and Technology. For my interview purposes i have uploaed my internship and course completion certificates to exhibit my knowledge. 
